@@ -4,7 +4,7 @@
 [![Watch the video](https://i.ytimg.com/vi/j8JM3r_U7ZA/hqdefault.jpg?sqp=-oaymwEcCNACELwBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLBhclLia6iUGz3GL3BwnanlpiH0cg)](https://youtu.be/MgVBZE07wOc?si=ip6X3Ivv6C0OybAk)
 
 
-# Текст песни «SPIDERR»]
+# Текст песни «SPIDERR»
 
 
 # [Интро]
