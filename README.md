@@ -1,6 +1,10 @@
 # Kai Angel - SPIDERR
 
-Текст песни «SPIDERR»]
+
+![image](https://github.com/Blaskowitz14/PlanerSira/assets/161132837/8df62846-025c-4846-b460-5fa6d98c5380)
+
+
+# Текст песни «SPIDERR»]
 
 
 # [Интро]
