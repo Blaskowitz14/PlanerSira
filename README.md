@@ -2,12 +2,14 @@
 
 Текст песни «SPIDERR»]
 
+
 [Интро]
 GOD
 [?]
 [?]
 What the fuck? Ха-ха-ха
 Ай
+
 
 [Припев]
 Her eyes, it's dollar signs
@@ -17,6 +19,7 @@ Call me "spider" with a double "R"
 Yeah, we VIPERR
 Каждый день я плаваю в денежном океане, ха
 У меня их, будто я беременный деньгами
+
 
 [Куплет]
 Е, когда я в LA — автоматически пизда те
@@ -47,6 +50,8 @@ EUPHORIA
 Kai Angel
 SLAYERR
 Kai Angel
+
+
 [Припев]
 Her eyes, it's dollar signs
 She see me, she say lies, huh
